@@ -10,4 +10,5 @@ Here are some ideas to get you started:
 - Education @ SIET
 - Intrested in sports
 - Fav❤️ Farming
-- Loking to create new application 
+- Loking to create new application
+-Loking to become good coder
